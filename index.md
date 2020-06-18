@@ -10,3 +10,6 @@ In New Mexico 1879 treffen Bill und Ted in einer Bar auf Billy the Kid. Sie rett
 * Cooler Hoshi
 * Gerne volle Kanne
 * Pazifist
+
+> Das Leben ist bunt und
+> Volle kanne
