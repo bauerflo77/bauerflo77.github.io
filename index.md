@@ -13,3 +13,5 @@ In New Mexico 1879 treffen Bill und Ted in einer Bar auf Billy the Kid. Sie rett
 
 > Das Leben ist bunt und
 > Volle kanne
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/9/97/Alex_Winter.jpg"/>
