@@ -4,3 +4,9 @@ Im Jahr 1988 haben Bill und Ted in San Dimas ein Problem. Ihr Geschichtslehrer M
 1805 in Österreich erleben sie den Einmarsch der Franzosen mit, von wo sie Napoleon mitbringen. Diesen liefern sie zu Hause bei Teds kleinem Bruder Deacon ab, der auf ihn aufpassen soll, während Bill und Ted für ihr Referat weitere Personen aus der Geschichte holen wollen.
 
 In New Mexico 1879 treffen Bill und Ted in einer Bar auf Billy the Kid. Sie retten ihm dort bei einer Prügelei das Leben und nehmen ihn auf ihrer Flucht mit ins Jahr 410 vor Christus ins antike Griechenland. Dort begegnen sie Sokrates. Mit beiden reisen Bill und Ted weiter nach England des 15. Jahrhunderts. Sie begegnen der Prinzessin Elizabeth von York sowie Prinzessin Joanna am Tag vor ihrer geplanten Doppelhochzeit, müssen aber ohne sie überstürzt aufbrechen, nachdem sie mit Hilfe von Billy the Kid und Sokrates nur knapp einer Hinrichtung auf dem Schafott entkommen sind.
+
+## Eigenschaften
+
+* Cooler Hoshi
+* Gerne volle Kanne
+* Pazifist
